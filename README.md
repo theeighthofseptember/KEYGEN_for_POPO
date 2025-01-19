@@ -23,13 +23,15 @@ Visual imitation of classic 2000s keygens, specifically designed for a music vid
 
 ## Usage
 
-For artistic purposes only! Created as part of a music video production.
+dist/KEYGEN.exe
 
 ## Author
 
 RICKY
 
 ## Disclaimer
+
+For artistic purposes only! Created as part of a music video production.
 
 This is an art project, not intended for actual key generation or cracking. Created purely for entertainment purposes as a music video prop.
 
