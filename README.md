@@ -4,7 +4,7 @@ A retro-style fake key generator created as a prop for a music video. **Note:** 
 
 ## Music video
 
-in process..
+(https://www.instagram.com/reel/DGQkjicSzrF/?utm_source=ig_web_copy_link)
 
 ## About
 
